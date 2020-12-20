@@ -1,10 +1,10 @@
-NOTE : if you didn't understad someting send message in my facebook account
+NOTE : if you didn't understad someting send message to my facebook account
 
 https://facebook.com/nizar.amri.733
 
 
 
-weekend-ctf//cybertalents//chellenge : code
+weekend-ctf//cybertalents//chellenge : 45M
 
 this is a super easy challenge that giving us a simple assembly code 
 
