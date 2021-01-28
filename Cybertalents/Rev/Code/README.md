@@ -1,6 +1,4 @@
-NOTE : if you didn't understand something send message to my facebook account
-
-https://facebook.com/nizar.amri.733
+NOTE : if you didn't understand something DM me on facebook : https://facebook.com/nizar.amri.733
 
 
 
